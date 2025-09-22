@@ -54,7 +54,7 @@ When I’m not mapping processes or designing dashboards, you’ll likely find m
 
 ## 📫 Let’s Connect  
 -  https://www.linkedin.com/in/ugochi-ekoh/
-- - 📧 ekohobialougochi@gmail.com(#) 
+- - 📧 ekohobialougochi@gmail.com
 - 😄 Pronouns: ...Her 
 
 ---
